@@ -4,7 +4,7 @@ description: 'Die Geschichte von Jesus, wie Lukas (Luggi, Luke) sie erzählt hat
 
 # Lukas
 
-## Info
+## Infos
 
 ### Verfasser
 
