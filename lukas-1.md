@@ -2,7 +2,7 @@
 
 #### Vorwort
 
-1 Lieber Theophilus! Viele Leute haben schon den Versuch gestartet, alles mal aufzuschreiben, was so bei uns in den letzten Jahren gelaufen ist. 
+**1** Lieber Theophilus! Viele Leute haben schon den Versuch gestartet, alles mal aufzuschreiben, was so bei uns in den letzten Jahren gelaufen ist. 
 
 2 Als Grundlage dafür gab es die Berichte von den Augenzeugen, die live mitgekriegt haben, wie Gott alle seine Versprechen eingehalten hat.
 
